@@ -1,4 +1,4 @@
-¡Claro! Un viaje en camper desde Oporto a Faro puede ser una experiencia increíble, recorriendo toda la costa atlántica de Portugal. Aquí tienes una ruta sugerida para 9 noches:
+Ruta sugerida para 9 noches:
 
 ### Día 1: Oporto a Aveiro (80 km)
 - **Atracción principal**: Paseo en los tradicionales barcos moliceiros por los canales de Aveiro.
